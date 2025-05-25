@@ -1,4 +1,4 @@
 # commclassroomOP
 
 Kunal Kushwaha learing github amazing..
--this community is amazing.
+-venkat says that this community is amazing.
